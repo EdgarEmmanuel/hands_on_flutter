@@ -1,0 +1,1 @@
+# I AM RICH - APP
